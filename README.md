@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @G70MB
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Coding😁
 - 💞️ I’m looking to collaborate on my own company
 - 📫 reach me by mailing(gmaheshbabu1031@gmail.com) 
 
